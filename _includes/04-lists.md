@@ -1,0 +1,4 @@
+ - Jesus
+ - My beautiful wife
+ - University of Kentucky sports
+ - Fantasy football
