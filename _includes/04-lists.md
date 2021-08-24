@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+ - Jesus
+ - My beautiful wife
+ - University of Kentucky sports
+ - Fantasy football
